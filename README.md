@@ -11,3 +11,5 @@
 * 要保护自己的利益，必须团结和自己利益相同的人，发出自己的声音，壮大自己的力量。 
 
 * 请发送邮件至 <a href="mailto:power.of.working.class@gmail.com">power.of.working.class@gmail.com</a> ,加入邮件讨论列表。
+
+* IM聊天室 <a href="https://gitter.im/workingclasspower">https://gitter.im/workingclasspower</a> 
